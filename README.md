@@ -14,6 +14,5 @@
 ![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/588bd0f8-2a1e-4a90-99e9-52e0b10d5048)
 ![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/4df81c3f-67a0-4950-b63d-4ed8008ccde0)
 ![tumblr_08b25445293aa2d5d6e0b9640e2ee602_d1d5ea42_100](https://github.com/user-attachments/assets/79da6999-9174-44be-ac64-6bbb7bd34192)
-<img width="199" height="112" alt="tumblr_d2272338d3d062c3d949072b99343dab_42504667_250" src="https://github.com/user-attachments/assets/4710047e-57b9-4aab-9e44-e0a190a89837" />
 <img width="99" height="56" alt="tumblr_05ccb135b0495ddb01f905d368ab17ec_91cc7742_100" src="https://github.com/user-attachments/assets/14706ad6-f71d-4d0d-973a-c9943983a061" />
 <img width="99" height="56" alt="tumblr_0edf7d43f1ccfd6b4ef924806aac6f2b_f1260540_100" src="https://github.com/user-attachments/assets/b2e80a57-5e38-4d02-b2e9-5f42636c74c8" />
